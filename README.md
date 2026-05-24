@@ -2,7 +2,8 @@
 
 " If you haven't snuck up on me back then, I never would have eaten that devil fruit... "
 
-<img width="600" height="338" alt="https___s7_ezgif com_save_ezgif-7-ad1a274df37b" src="https://github.com/user-attachments/assets/de70942a-61d0-4a2d-b2e8-79f7ea8fa46b" />
+<img width="736" height="419" alt="_ (30)" src="https://github.com/user-attachments/assets/2c3a3976-29cb-4b33-8720-0a149fd532a8" />
+
 
 " In other words, I'd be filthy rich instead of running from the Navy. "
 
